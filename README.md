@@ -1,4 +1,4 @@
-### Hey there, I'm [mthnglac!](https://metehangulac.com) 👋
+### Hey there, I'm [Metehan!](https://metehangulac.com) 👋
 
 <!--
 
